@@ -1,2 +1,2 @@
-# 10-najlepszych-miast-do-zycia-w-Polsce
-Ranking 10 najlepszych miast do życia w Polsce
+# 10 największych miast na świecie
+Ranking 10 najwiekszych miast na świecie
